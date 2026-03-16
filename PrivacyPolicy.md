@@ -1,4 +1,4 @@
-# Privacy Policy for Whispy
+# Privacy Policy for Secretly
 
 **Last Updated:** March 16, 2026
 
