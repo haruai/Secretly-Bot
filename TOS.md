@@ -1,4 +1,4 @@
-# Terms of Service for Mallows
+# Terms of Service for Secretly
 
 **Last Updated:** March 16, 2026
 
